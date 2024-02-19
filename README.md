@@ -6,5 +6,6 @@
 
 **Задание 2**
 
+![image](https://github.com/beast86m/reserv_copy/assets/47268167/73c61a03-21b5-4eec-af96-c81f1ac0d8c1)
 
 ![image](https://github.com/beast86m/reserv_copy/assets/47268167/0f9412ef-c30f-458d-8c5e-71b8760ab665)
